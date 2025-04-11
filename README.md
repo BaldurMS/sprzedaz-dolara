@@ -1,0 +1,1 @@
+# sprzedaz-dolara
